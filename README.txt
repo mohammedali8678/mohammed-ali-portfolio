@@ -1,0 +1,1 @@
+Portfolio project placeholder. Original files missing in this environment.
